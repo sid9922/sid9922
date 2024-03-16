@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sid9922 ...
-- 👀 I’m interested in playing game ...
+- 👀 I’m interested in playing game ..
 - 
 
 <!---
